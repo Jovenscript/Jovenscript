@@ -26,4 +26,4 @@ Feitos com apoio de IA, como parte do meu processo de estudo:
 Saindo da manutenção, entrando no dev — um passo de cada vez, sem fingir que
 sei o que ainda não sei.
 
-📫 **Contato:** [seu LinkedIn aqui] · [seu e-mail aqui]
+📬 **Contato:** [Marlon Tavares](https://www.linkedin.com/in/marlon-henrique-de-arruda-tavares-8b8340385/) • [marlindo0951@gmail.com]
