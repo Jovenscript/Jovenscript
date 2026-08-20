@@ -65,4 +65,4 @@ Só tentando aprender um pouco mais a cada projeto.
 
 ---
 
-📬 **Contato:** [Marlon Tavares](https://www.linkedin.com/in/marlon-henrique-de-arruda-tavares-8b8340385/) • [marlindo0951@gmail.com]
+📬 **Contato:** [Marlon Tavares](https://www.linkedin.com/in/marlon-henrique-de-arruda-tavares-8b8340385/) • marlindo0951@gmail.com
